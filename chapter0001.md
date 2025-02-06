@@ -1,6 +1,6 @@
-#A MAGIC OF BOOKWORMS
+# A MAGIC OF BOOKWORMS
 
-##Chapter 0001
+## Chapter 0001
 
 There are various contradictory versions of the story of the painter Marco di Salvieri. Marco di Salvieri was said to have had four wives—on this point the four Bookworms agree... But from this founding consensus, a veritable tree of discordant facts unfolded. For months now, at the very heart of the book you are reading (and that’s its soul), the life of the polygamous artist has been bitterly debated, divided between four divergent readings, four _flavours_ of the same biographies—four ways of filling in the gaps in history.
 

@@ -1,3 +1,3 @@
-##Chapter 0002
+## Chapter 0002
 
 Your move. Your ideas.
